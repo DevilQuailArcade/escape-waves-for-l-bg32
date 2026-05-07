@@ -1,4 +1,4 @@
-
+ultimate escape waves for lucky blocks Scripts offers the most advanced escape waves for lucky blocks Script, with auto-upgrade and teleport. Perfect
 
 
 
